@@ -11,7 +11,8 @@ Target Corporation ✅Signed
 Breeze Airlines Co LTD❌Revoked
 VINWASH COMPANY LIMITED ❌ Revoked
 China Mobile Group Shandong Co., Ltd (Expired+Removed)
-JAPENSE TECHNOLOGY COMPANY LIMITED ✅Signed
+JAPENSE TECHNOLOGY COMPANY LIMITED (removed)
+São Paulo State University ❌Revoked
 
 
 This is not finshed don’t use anything in here lol until we get accurate information based of our current internet scanner and finder!

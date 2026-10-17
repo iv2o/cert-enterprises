@@ -51,3 +51,6 @@ This is not finshed don’t use anything in here lol until we get accurate infor
 Shenzhen Huayu Network Technology Co., Ltd ❌ Revoked
 
 Pacific Synergy Technology Co., Ltd. ✅Signed
+
+
+Commzfn personal cert ✅ Signed

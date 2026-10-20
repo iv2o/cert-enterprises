@@ -50,7 +50,12 @@ This is not finshed don’t use anything in here lol until we get accurate infor
 
 Shenzhen Huayu Network Technology Co., Ltd ❌ Revoked
 
-Pacific Synergy Technology Co., Ltd. ✅Signed
+Pacific Synergy Technology Co., Ltd. ❌Revoked
+
+
+
+
+
 RAKUTEN SECURITIES,INC✔️ (Expires in 15 days)
 
 

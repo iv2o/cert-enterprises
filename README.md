@@ -55,6 +55,9 @@ Pacific Synergy Technology Co., Ltd. ❌Revoked
 
 
 
+Most of enterprise came from Apple pl2 telegram or k sign server, And unknown from a source.
+
+
 
 RAKUTEN SECURITIES,INC✔️ (Expires in 15 days)
 

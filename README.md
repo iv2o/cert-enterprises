@@ -59,8 +59,9 @@ Most of enterprise came from Apple pl2 telegram or k sign server, And unknown fr
 
 
 
-RAKUTEN SECURITIES,INC✔️ (Expires in 15 days)
+RAKUTEN SECURITIES,INC (Expired)
 
+Chengdu Railway Bureau (Signed✅)
 
 
 
